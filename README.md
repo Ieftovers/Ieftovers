@@ -1,5 +1,5 @@
 <h4 align="center">
 
-![](https://media.tenor.com/J4j3aDe8koAAAAAi/omori-transparent.gif)
+![](https://i.postimg.cc/Jnqnpbvw/omori-omori-render-by-piiiiiiniinn-dj66983-fullview-(1)-(1).png)
 
 </h4>
