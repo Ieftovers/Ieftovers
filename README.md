@@ -1,6 +1,4 @@
-<h4 align="center">
-
-![](https://komarev.com/ghpvc/?username=antlerqueen&color=fcb157&base=30000&label=‎✧)‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+<h4 align="center"> ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
  ‎ ‎ ‎ ‎  ![](https://i.postimg.cc/1XVv2vt2/Titelloses-1079-20260630192808-(1).png)
 
