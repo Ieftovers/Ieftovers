@@ -1,6 +1,6 @@
 <h4 align="center"> ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
- ‎ ‎ ‎ ‎  ![](https://files.catbox.moe/djlcna.png)
+ ‎ ‎ ‎ ‎  ![](https://files.catbox.moe/mej4rc.png)
 
 ‎LEX DEERSONA
 </h4>
